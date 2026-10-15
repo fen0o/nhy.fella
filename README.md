@@ -5,7 +5,7 @@
 - 🎨 **Graphic Design & UI/UX:** Active member of creative communities **OurCreativity** and **Artisanalley**
 - 💻 Currently exploring **Programming, Web Development & UI/UX Design**
 - 🏐 **Sports & Athletics:** Active in **volleyball (voli), badminton, basketball (basket), and distance running (berlari)**
-- 👨‍💻 Portfolio & Projects available at [hienore.carrd.co](https://hienore.carrd.co)
+- 👨‍💻 Portfolio & Projects available at [fellaa.carrd.co](https://fellaa.carrd.co)
 - 💬 Ask me about **Design, Coding, Tech, Sports, or Marvel**
 - 📫 How to reach me: **@nhy.fella** on Instagram
 - ⚡ Fun fact: *Kalau gabut biasanya ngedit atau olahraga!*
