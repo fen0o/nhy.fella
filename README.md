@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Fella Nur Hidayah (Fen)</h1>
+<h1 align="center">Hi 👋, I'm Fella Nur Hidayah</h1>
 <h3 align="center">Informatics Student @ UNSOED | Visual Creator | Multi-Sport Athlete</h3>
 
 - 🎓 **Undergraduate Informatics Student** @ [Universitas Jenderal Soedirman (UNSOED)](https://unsoed.ac.id/)
